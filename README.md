@@ -1,0 +1,2 @@
+# kamusjerman
+kamus jerman-indonesia
